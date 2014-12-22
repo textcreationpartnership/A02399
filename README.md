@@ -35,1458 +35,231 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A treatise of morall phylosophie contaynyng the sayinges of the wyse. Gathered and Englyshed by Wyl[
-#####Body#####
 
-1. ¶Of the beginnyng of
+1. To the right honorable the Lorde
+Edwarde Beauchampe, Earle
+of Hartforde, W. Baldwyn
+wyssheth encrease of vertue,
+honor and learnyng.
+
+1. ¶The Prologue to the
+Reader.
+
+#####Body#####
+¶Of the beginnyng of
+Philosophy. Cap. i.SOme perhaps, seyng
+we entende to speake
+of a kynde of Philo
+    _ ¶Of the beginnyng of
 Philosophy. Cap. i.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of the partes of Philosophie.
+    _ ¶Of the partes of Philosophie.
 Cap. ii
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of the begynnyng of morall
+    _ ¶Of the begynnyng of morall
 Philosophye.
 Cap. iii.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of the kyndes of teachyng of
+    _ ¶Of the kyndes of teachyng of
 morall Philososophye. Cap. iiii.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶The order of this boke.
+    _ ¶The order of this boke.
 Cap. v.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶The lyues and wittye answers
+    _ ¶The lyues and wittye answers
 of the Philophers, and first
 of Hermes. Cap. vi.
 
-    _ ¶The summe of all.
+    _ ¶Of Pythagoras Cap. vii.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Pythagoras Cap. vii.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Thales Milesius.
+    _ ¶Of Thales Milesius.
 Cap. viii.
 
-    _ ¶The summe of all.
+    _ ¶Of Solon Salaminus. Ca. ix.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Solon Salaminus. Ca. ix.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Chylo Lacedemoniencis.
+    _ ¶Of Chylo Lacedemoniencis.
 Cap. x.
 
-    _ ¶The summe of all.
+    _ ¶Of Byas Prienneus. Cap. xi.
 
-    _ ¶The summe of all.
+    _ ¶Of Periander. Cap. xii.
 
-    _ ¶The summe of all.
+    _ ¶Of Anacharsis. Cap. xiii.
 
-    _ ¶The summe of all.
+    _ ¶Of Myson. Cap. xiiii.
 
-    _ ¶The summe of all.
+    _ ¶Of Epimenides. Cap. xv.
 
-    _ ¶The summe of all.
+    _ ¶Of Anaxagoras. Cap. xvi.
 
-    _ ¶The summe of all.
+    _ ¶Of Phericides. Cap. xvii.
 
-    _ ¶The summe of all.
+    _ ¶Of Socrates. Cap. xviii.
 
-    _ ¶The conclusion.
+    _ ¶Of Xenophon. Cap. xix.
 
-    _ ¶The thinges that cause a quiet lyfe
+    _ ¶Of Aristippus. Cap. xx.
 
-1. ¶Of Byas Prienneus. Cap. xi.
+    _ ¶Of Plato. Cap. xxi.
 
-    _ ¶The summe of all.
+    _ ¶Of Xenocrates. Cap. xxii.
 
-    _ ¶The summe of all.
+    _ ¶Of Archelaus. Cap. xxiii.
 
-    _ ¶The summe of all.
+    _ ¶Of Aristotle. Cap. xxiiii.
 
-    _ ¶The summe of all.
+    _ ¶Of diogenes. Cap. xxv.
 
-    _ ¶The summe of all.
+    _ ¶Of Antisthenes. Cap. xxvi.
 
-    _ ¶The summe of all.
+    _ ¶Of Isocrates. Cap. xxvii.
 
-    _ ¶The summe of all.
+    _ ¶Of Plutarche. Cap. xxviii.
 
-    _ ¶The summe of all.
+    _ ¶Of Seneca. Cap. xxix.
 
-    _ ¶The conclusion.
+1. ¶The seconde
+boke intytled, of preceptes
+and counsayles.
 
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Periander. Cap. xii.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Anacharsis. Cap. xiii.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Myson. Cap. xiiii.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Epimenides. Cap. xv.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Anaxagoras. Cap. xvi.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Phericides. Cap. xvii.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Socrates. Cap. xviii.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Xenophon. Cap. xix.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Aristippus. Cap. xx.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Plato. Cap. xxi.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Xenocrates. Cap. xxii.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Archelaus. Cap. xxiii.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Aristotle. Cap. xxiiii.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of diogenes. Cap. xxv.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Antisthenes. Cap. xxvi.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Isocrates. Cap. xxvii.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Plutarche. Cap. xxviii.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Seneca. Cap. xxix.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of the profite of morall Philosophy.
+    _ ¶Of the profite of morall Philosophy.
 Cap. i.
 
-    _ ¶The summe of all.
+    _ ¶Of God, of his power, and of his workes. Cap. ii.
 
-    _ ¶The summe of all.
+      * ¶The summe of all.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of God, of his power, and of his workes. Cap. ii.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of the soule, and gouernaunce
+    _ ¶Of the soule, and gouernaunce
 therof. Cap. iii.
 
-    _ ¶The summe of all.
+      * ¶The summe of all.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of the worlde, the loue, & pleasures
+    _ ¶Of the worlde, the loue, & pleasures
 therof. Cap. iiii.
 
-    _ ¶The summe of all.
+      * ¶The summe of all.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Deathe, not to be feared.
+    _ ¶Of Deathe, not to be feared.
 Cap. v.
 
-    _ ¶The summe of all.
+      * ¶The summe of all.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Frendshyp and frendes.
+    _ ¶Of Frendshyp and frendes.
 Cap. vi.
 
-    _ ¶The summe of all.
+      * ¶The summe of all.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of counsayle and counsaylours.
+    _ ¶Of counsayle and counsaylours.
 Cap. vii.
 
-    _ ¶The summe of all.
+      * ¶The summe of all.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of rychesse and pouertie.
+    _ ¶Of rychesse and pouertie.
 Cap. viii.
 
-    _ ¶The summe of all.
+      * ¶The summe of all.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Kynges, rulers, and gouernours,
+    _ ¶Of Kynges, rulers, and gouernours,
 howe they shoulde rule
 theyr subiectes. Cap. x.
 
-    _ ¶The summe of all.
+      * ¶The summe of all.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶The preceptes of the wyse.
+    _ ¶The preceptes of the wyse.
 Cap. xi.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶The vse of prouerbes and adages.
+      * ¶The conclusion.
+¶The vse of prouerbes and adages.
+Cap. •.LYke as a louer
+delyted in the
+goodly bewtie
+of his loue, c
+    _ ¶The vse of prouerbes and adages.
 Cap. •.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of wysedome, learnyng, and vnderstandyng.
+    _ ¶Of wysedome, learnyng, and vnderstandyng.
 Cap. ii.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Iustice, Lawes, cities, and
+    _ ¶Of Iustice, Lawes, cities, and
 gouernaunce. Cap. iii.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of power, honor, vertue, and
+    _ ¶Of power, honor, vertue, and
 strengthe. Cap. iiii.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of liberalitie, pacience, vse,
+    _ ¶Of liberalitie, pacience, vse,
 and diligence. Cap. v.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of knowledge, ignoraunce,
+    _ ¶Of knowledge, ignoraunce,
 and errour. Cap. vi.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of moneye and couetousnes.
+    _ ¶Of moneye and couetousnes.
 Cap. vii.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of the tongue, of fayre speache,
+    _ ¶Of the tongue, of fayre speache,
 and of flattery. Cap. viii.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of truthe, of Faythe, of errour
+    _ ¶Of truthe, of Faythe, of errour
 and lying. Cap. ix.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of bryngyng vp and maners,
+    _ ¶Of bryngyng vp and maners,
 of disposicions and instruction.
 Cap. x.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Loue, lust, and lecherye.
+    _ ¶Of Loue, lust, and lecherye.
 Cap. xi.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of Sorowe, gladnes, feare and
+    _ ¶Of Sorowe, gladnes, feare and
 boldenes, Cap. xii.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of anger, wrath, enuy, malice, and
+    _ ¶Of anger, wrath, enuy, malice, and
 reuengeaunce. Cap. xiii.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of lybertie and bondage.
+    _ ¶Of lybertie and bondage.
 Cap. xiiii.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Of women, wyne, and dronkennes.
+    _ ¶Of women, wyne, and dronkennes.
 Cap. xv.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Dyuers sentences of sundry
+    _ ¶Dyuers sentences of sundry
 matters. Cap. xvi.
 
-    _ ¶The summe of all.
+    _ ¶The .xvii. Chapter.
 
-    _ ¶The summe of all.
+    _ ¶The .xviii. Chapiter.
 
-    _ ¶The summe of all.
+    _ ¶The .xix. Chapiter.
 
-    _ ¶The summe of all.
+    _ ¶The .xx. Chapter.
 
-    _ ¶The summe of all.
+    _ ¶The .xxi. Chapter.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶The .xvii. Chapter.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶The .xviii. Chapiter.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶The .xix. Chapiter.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶The .xx. Chapter.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶The .xxi. Chapter.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶The .xxii. Chapter.
+    _ ¶The .xxii. Chapter.
 Of benefyttes, and of unthankfulnes.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Pyththie meters
+    _ ¶Pyththie meters
 of dyuers matters.
 
-    _ ¶The summe of all.
+      * ¶The thinges that cause a quiet lyfe
 
-    _ ¶The summe of all.
+1. ¶The last boke
+Of Prouerbes and
+Semblables.
 
-    _ ¶The summe of all.
+    _ ¶Hermes, Socrates, Plato.
 
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Hermes, Socrates, Plato.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
-
-1. ¶Aristotle, Plutarche, Seneca.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The summe of all.
-
-    _ ¶The conclusion.
-
-    _ ¶The thinges that cause a quiet lyfe
+    _ ¶Aristotle, Plutarche, Seneca.
 
 #####Back#####
-A treatise of morall phylosophie contaynyng the sayinges of the wyse. Gathered and Englyshed by Wyl[
+
+1. ¶Faultes escaped.
+
+1. A table declaryng the contentes of the whole booke.
+¶Imprinted❧
+at London, in Flete strete,
+at the signe of the
+Sunne, ouer agaynste
+the Conduyte,
+by Ed
 **Types of content**
 
   * There are 371 **verse** lines!

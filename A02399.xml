@@ -9802,7 +9802,10 @@ oure Lorde.
 solum, per Sep<g ref="char:EOLhyphen"/>tennium.
 <g ref="char:leaf">❧</g>
             </p>
-            <figure/>
+            <p>
+               <pb facs="tcp:692:141" rendition="simple:additions"/>
+               <figure/>
+            </p>
             <pb facs="tcp:692:141"/>
          </div>
       </back>
